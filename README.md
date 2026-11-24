@@ -31,6 +31,6 @@ Português (nativo) · Inglês (avançado) · Espanhol (intermediário)
 
 ### 📫 Contato
 
-[LinkedIn](https://www.linkedin.com/in/danilovaz-dev) · [Portfólio](https://portifolio-one-ashen.vercel.app) · danilovaz06dv@gmail.com
+[LinkedIn](https://www.linkedin.com/in/danilo-vaz-3442bb2b0) · [Portfólio](https://portifolio-one-ashen.vercel.app) · danilovaz06dv@gmail.com
 
 Estou aberto a oportunidades como desenvolvedor. Fique à vontade para me chamar!
